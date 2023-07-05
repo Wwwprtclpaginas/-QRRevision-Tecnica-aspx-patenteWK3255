@@ -1,0 +1,1 @@
+# -QRRevision-Tecnica-aspx-patenteWK3255
